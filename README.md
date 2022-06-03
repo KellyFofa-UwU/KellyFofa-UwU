@@ -1,12 +1,8 @@
-Sou diabético
-
 Oi tenho 13 anos gosto de fnf e Minecraft
 
 Fasso aniversário dia 28 de março
 
-Sou omnisexual bigenero bimantic trans Girl
-
-E eu tô fazendo um mod de fnf no celular
+E eu tô fazendo um mod de FNF no celular
 
 ║▰▰▰▰▰▰▰▰▰║ lerdeza
 
